@@ -1,16 +1,15 @@
-## Hi there 👋
+<p align="center">
+  this person
+</p>
+<p align="center">
+  
+  ![noFilter](https://github.com/user-attachments/assets/e9898fc4-5efc-4bed-b2b6-56c3ef299fe9)
+</p>
 
-<!--
-**chajjuu/chajjuu** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<p align="center">
+   is the most coolest person you would ever meet
+</p>
 
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<p align="center">
+  seriously
+</p>
