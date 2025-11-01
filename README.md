@@ -1,9 +1,9 @@
 <p align="center">
   this person
 </p>
-<p align="center">
-  
-  ![noFilter](https://github.com/user-attachments/assets/e9898fc4-5efc-4bed-b2b6-56c3ef299fe9)
+
+<p align="center">  <img width="352" height="352" alt="noFilter-removebg-preview" src="https://github.com/user-attachments/assets/9e085d7e-a19a-4247-83eb-b7ffb83a1b6c" />
+
 </p>
 
 <p align="center">
