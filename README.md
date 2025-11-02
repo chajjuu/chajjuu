@@ -11,7 +11,7 @@
    I LOVE CURIOUS_COMET
    </p>
 
-‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎‎  ‎ ‎ [★](https://github.com/curious-comet) AND
-[HUSBANDO](https://github.com/POST4L-DUDE)
+‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎  ‎  ‎ ‎ ‎ ‎‎ ‎ [★](https://github.com/curious-comet) AND
+[HUSBAND](https://github.com/POST4L-DUDE)
 
 
